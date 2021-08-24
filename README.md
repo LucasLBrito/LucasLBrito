@@ -1,4 +1,4 @@
-    ### Hi :wave: , I am Lucas
+    ### Hi 👍 , I am Lucas
 
 ## Public information
 
